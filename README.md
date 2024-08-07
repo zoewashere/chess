@@ -1,1 +1,1 @@
-# zoewashere.github.io-chess
+# zoewashere.github.io/chess
