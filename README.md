@@ -1,1 +1,0 @@
-# zoewashere.github.io/chessclub
